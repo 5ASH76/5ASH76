@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @5ASH76
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 👀 I’m interested in Android
+- 🌱 I’m currently learning alot
+- 💞️ I’m looking to collaborate on cyber security
+- 📫 How to reach me account.work@aol.com
